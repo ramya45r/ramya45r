@@ -1,4 +1,4 @@
-🚀 Hi, I'm [Your Name]! 👋
+🚀 Hi, I'm Ramya Mol R! 👋
 💻 MERN Stack Developer | 2+ Years Experience
 
 🔹 Tech Stack:
